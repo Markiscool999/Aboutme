@@ -9,4 +9,5 @@ I’m a young AI developer and founder of the **Youth AI Access Project**, a non
 
 ---
 
-📧 **Contact:** your-email-here
+📧 **Contact:** coolcrazykid12@gmail.com
+
